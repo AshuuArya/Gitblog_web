@@ -1,1 +1,0 @@
-this blog is posted by user03
